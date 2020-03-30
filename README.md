@@ -1,0 +1,2 @@
+# osisidio
+Asesinato del oso 
